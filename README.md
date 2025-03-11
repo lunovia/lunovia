@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lunovia
 - 👀 I’m interested in my life
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on great people
+- 💞️ I’m looking to collaborate with great people
 - 📫 How to reach me is just finding me
 - 😄 Pronouns: itgirl
 - ⚡ Fun fact: I am a humorous person
